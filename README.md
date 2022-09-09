@@ -1,4 +1,4 @@
-Link del desafio en youtube:
+Link de la tarea en youtube:
 
 https://www.youtube.com/watch?v=rq-quOvCToM
 
